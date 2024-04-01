@@ -1,1 +1,0 @@
-# dasturlash-uslublari-va-paradigmalari
